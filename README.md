@@ -43,10 +43,10 @@
 
 Estamos construyendo el estándar de privacidad para la próxima década. Al participar en el acceso anticipado, aseguras tu posición antes de la transición global al modelo de servicios.
 
-### 💎 **[¡QUIERO MI LICENCIA VITALICIA Y RECLAMAR MI SOBERANÍA DIGITAL AHORA!](https://orbita.avfdigital.cc/preventa)**
+### 💎 **[¡QUIERO MI ACCESO ANTICIPADO Y RECLAMAR MI INDEPENDENCIA DIGITAL AHORA!](https://orbita.avfdigital.cc/preventa)**
 
 > [!CAUTION]
-> **Oportunidad Única de Fundador:** Adquiere tu licencia perpetua por **$49** y conviértete en dueño de tu infraestructura de IA antes del lanzamiento oficial.
+> **Oportunidad Única de Fundador:** Adquiere tu licencia anticipada por **$49** y conviértete en dueño de tu infraestructura de IA antes del lanzamiento oficial.
 
 ---
 

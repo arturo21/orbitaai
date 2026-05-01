@@ -28,7 +28,7 @@
 | **Motor Perpetuo** | Núcleo basado en arquitectura **Gemma 4**. | Licencia Vitalicia |
 | **API de Consumo** | Integración en flujos de trabajo y CRM. | Pago por uso |
 | **VPS Privado** | Instancias aisladas de custodia absoluta. | Suscripción Mensual |
-| **Herramienta Online** | Optimizada para creación de contenido multimodal, online, privado, por suscripción |
+| **Herramienta Online** | Optimizada para creación de contenido multimodal, online, privado, por suscripción  | Pago por uso |
 
 ---
 

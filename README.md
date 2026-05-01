@@ -46,7 +46,7 @@ Estamos construyendo el estándar de privacidad para la próxima década. Al par
 ### 💎 **[¡QUIERO MI ACCESO ANTICIPADO Y RECLAMAR MI INDEPENDENCIA DIGITAL AHORA!](https://orbita.avfdigital.cc/preventa)**
 
 > [!CAUTION]
-> **Oportunidad Única de Fundador:** Adquiere tu licencia anticipada por **$49** y conviértete en dueño de tu infraestructura de IA antes del lanzamiento oficial.
+> **Oportunidad Única de Fundador:** Adquiere tu licencia anticipada por **$49** y conviértete en el primer usuario en disfrutar de la infraestructura de IA privada y sin censura antes del lanzamiento oficial.
 
 ---
 

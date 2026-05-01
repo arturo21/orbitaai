@@ -46,7 +46,7 @@ Estamos construyendo el estándar de privacidad para la próxima década. Al par
 ### 💎 **[¡QUIERO MI ACCESO ANTICIPADO Y RECLAMAR MI INDEPENDENCIA DIGITAL AHORA!](https://orbita.avfdigital.cc/preventa)**
 
 > [!CAUTION]
-> ### 🛡️ Forja los Cimientos de la Resistencia
+> ### 🛡️ Forja los Cimientos de la Privacidad Digital
 > **Llamado para Pioneros:** Sé la primera persona en plantar la bandera de la **Independencia Tecnológica**. Al adquirir tu licencia por **$49**, no solo compras software; te conviertes en el arquitecto fundador de un ecosistema libre de censura. Toma el control de la infraestructura de IA más privada del mundo y establece, antes que nadie, los lineamientos de la soberanía digital antes del lanzamiento oficial.
 > 
 > 🔗 **[RECLAMAR MI LUGAR COMO PIONERO EN ÓRBITA IA](https://orbita.avfdigital.cc/preventa)**
